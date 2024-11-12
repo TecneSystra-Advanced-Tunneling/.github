@@ -2,4 +2,4 @@ TECNE SYSTRA-SWS Advanced Tunneling, società di eccellenza nell’ambito della 
 
 Il gruppo prende forma dalla condivisione di esperienze decennali maturate nella geoingegneria e si pone come punto di riferimento del settore, essendo detentrice e sviluppatrice di best practice nell’ambito della progettazione di gallerie.
 
-Il rispetto, la passione, la sostenibilità e l’innovazione sono i principi fondanti di TECNE SYSTRA-SWS Advanced Tunneling, che può contare su un ambiente giovane, dinamico e intraprendente, orientato a gestire con determinazione le nuove sfide che il mondo dell’ingegneria, in costante sviluppo, ci sottopone ogni giorno.
+Il rispetto, la passione, la sostenibilità e l’innovazione sono i principi fondanti di TECNE SYSTRA-SWS Advanced Tunneling, che può contare su un ambiente giovane, dinamico e intraprendente, orientato a gestire con determinazione le nuove sfide del mondo dell’ingegneria.
